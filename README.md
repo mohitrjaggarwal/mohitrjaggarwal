@@ -1,6 +1,6 @@
 ### Hi there 👋
 <h1 align="center">Hi 👋, I'm Mohit Gupta</h1>
-<h3 align="center">A tech enthusiast from India.</h3>
+<h3 align="center">A tech enthusiast.</h3>
 
 - 🌱 I’m currently learning **Computer Vision**
 
