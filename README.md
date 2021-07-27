@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **mohitgupta.chd2000@gmail.com**
 
-- ⚡ Fun fact **I just tried searching out on google.**
+- ⚡ Fun fact **Why remember,just Google.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
