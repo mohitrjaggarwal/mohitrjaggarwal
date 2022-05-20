@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **mohitgupta.chd2000@gmail.com**
 
-- ⚡ Fun fact **Why remember,just Google.**
+- ⚡ Fun fact **wealth is health. #modern_society**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
